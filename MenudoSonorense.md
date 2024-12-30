@@ -4,7 +4,7 @@
 *Fuente:*[1](1).com/recetas-det.php?id=42
 *Porciones:*
 
-
+Si la pancita no se encuentra lavada y desinfectada, tendrá que lavarla varias veces con agua caliente, espolvorearla con bastante cal, lavarla nuevamente como si fuera una tela, enjuagarla con abundante agua y, por último, enjuagarla una vez más con agua o con vinagre y jugo de limón.
 ## Ingredientes
 - 5 lts. de agua
 - 2 kg. de menudo de res (panza) limpio en trozos de 3x3 cm. aprox.
